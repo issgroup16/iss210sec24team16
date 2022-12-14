@@ -11,3 +11,5 @@ Kim, Marlene. “Pay Secrecy and the Gender Wage Gap in the United States.” In
 Image on pay secrecy by Chaichan Ingkawaranon:https://www.calpeculiarities.com/2014/12/04/californias-anti-pay-secrecy-law-its-not-just-a-federal-contractor-problem/
 
 Mandel, Hadas, and Assaf Rotman. “The Stalled Gender Revolution and the Rise of Top Earnings in the United States, 1980 to 2017.” Sociological Science, Society for Sociological Science, 11 Apr. 2022, https://sociologicalscience.com/download/vol-9/april/SocSci_v9_136to158.pdf.
+
+Gender wage inequality in the United States: Causes and solutions to improve family well-being and economic growth. Equitable Growth. (2019, March 29). Retrieved December 14, 2022, from https://equitablegrowth.org/gender-wage-inequality-in-the-united-states-causes-and-solutions-to-improve-family-well-being-and-economic-growth/ 
