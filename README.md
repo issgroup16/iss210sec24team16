@@ -13,3 +13,9 @@ Image on pay secrecy by Chaichan Ingkawaranon:https://www.calpeculiarities.com/2
 Mandel, Hadas, and Assaf Rotman. “The Stalled Gender Revolution and the Rise of Top Earnings in the United States, 1980 to 2017.” Sociological Science, Society for Sociological Science, 11 Apr. 2022, https://sociologicalscience.com/download/vol-9/april/SocSci_v9_136to158.pdf.
 
 Gender wage inequality in the United States: Causes and solutions to improve family well-being and economic growth. Equitable Growth. (2019, March 29). Retrieved December 14, 2022, from https://equitablegrowth.org/gender-wage-inequality-in-the-united-states-causes-and-solutions-to-improve-family-well-being-and-economic-growth/ 
+
+Kasperkevic, Jana. "Unequal pay for women: 'I was told men should make more'." The Guardian, 13 Aug. 2014, https://www.theguardian.com/money/us-money-blog/2014/aug/13/women-equal-pay-gender-gap-stories-work.
+
+Hegewisch, Ariane, Phil, M., and Williams, Claudia. "The Gender Wage Gap: 2012." Institute for Women's Policy Research, 17 Sept. 2013, https://iwpr.org/iwpr-general/the-gender-wage-gap-2012/.
+
+"Is the Gender Pay Gap Real?." YouTube, uploaded by vlogbrothers, 2 Feb. 2016, https://www.youtube.com/watch?v=it0EYBBl5LI&t=1s.
