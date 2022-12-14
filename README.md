@@ -9,3 +9,5 @@ https://content.ebscohost.com/ContentServer.asp?T=P&P=AN&K=159853898&S=R&D=poh&E
 Kim, Marlene. “Pay Secrecy and the Gender Wage Gap in the United States.” Industrial Relations: A Journal of Econ-=p-[=omy and Society, vol. 54, no. 4, 2015, pp. 648–667., https://doi.org/10.1111/irel.12109.
 
 Image on pay secrecy by Chaichan Ingkawaranon:https://www.calpeculiarities.com/2014/12/04/californias-anti-pay-secrecy-law-its-not-just-a-federal-contractor-problem/
+
+Mandel, Hadas, and Assaf Rotman. “The Stalled Gender Revolution and the Rise of Top Earnings in the United States, 1980 to 2017.” Sociological Science, Society for Sociological Science, 11 Apr. 2022, https://sociologicalscience.com/download/vol-9/april/SocSci_v9_136to158.pdf.
